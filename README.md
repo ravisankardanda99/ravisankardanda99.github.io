@@ -1,0 +1,1 @@
+# infinixsmart7
